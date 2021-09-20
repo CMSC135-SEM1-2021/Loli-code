@@ -1,1 +1,1 @@
-Hi O-O
+Hi I'm Lolibeth Domer from Naga City, Cam Sur. For money lol.
